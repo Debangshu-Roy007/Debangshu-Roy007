@@ -5,4 +5,4 @@
 * 🚀 Learning and building projects using Rohit Negi's Strike Ultra batch.
 
 ### Connect with me:
-* 💼 LinkedIn: 
+* 💼 LinkedIn: www.linkedin.com/in/debangshu-roy-dev
